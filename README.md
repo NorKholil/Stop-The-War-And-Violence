@@ -1,1 +1,0 @@
-# Stop-The-War-And-Violence
